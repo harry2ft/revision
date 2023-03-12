@@ -8,3 +8,5 @@ Liyana Wolf
 Catherine Boyer
 Ella Moyer
 Zaara Clarke
+andrew smart
+john punking
