@@ -8,3 +8,5 @@ Hanna Leblanc
 Francesca Alvarado
 Haseeb Bonilla
 Matthew Collier
+harry merseille
+king morgan
